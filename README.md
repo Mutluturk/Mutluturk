@@ -10,7 +10,7 @@
 - 🎓 **Education**  
   - High school senior at **Istanbul Saint-Joseph**  
   - Incoming freshman at **TU Eindhoven**   
-  - Aspiring **chassis&powertrain engineer** in motorsports, hopefully F1 
+  - Aspiring **stress and strategy engineer** in motorsports, hopefully F1 
 
 ---
 
