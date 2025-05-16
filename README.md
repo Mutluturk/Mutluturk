@@ -20,7 +20,7 @@
 
 ---
 
-###🌎 Languages  
+### 🌎 Languages  
 
 - 🇹🇷 **Turkish**: Native  
 - 🇬🇧 **English**: Advanced 
